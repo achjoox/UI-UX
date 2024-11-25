@@ -1,4 +1,4 @@
-## UI and UX Project (Beginner_
+## UI and UX Project (Beginner)
 
 ## Hello guys! so, today i'm showcase my UI and UX
 
